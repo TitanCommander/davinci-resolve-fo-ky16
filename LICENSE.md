@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with DaVinci Resolve for PC | DaVinci Resolve for Windows instant Tool: color-correction & keyframe-animation, the #1
 
 
 
